@@ -11,8 +11,8 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning cloud native architecture and German.
 - 👯 I’m looking to collaborate on learning German.
 - 🤔 I’m looking for help with understanding Category Theory.
-- 💬 Ask me about ...
+- 💬 Ask me about Anything, though I might not be able to answer.
 - 📫 How to reach me: repo name  at G mail.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I 
+- ⚡ Fun fact: I make some badass :cake: Tiramisu :heart: ... 
 
