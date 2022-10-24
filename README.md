@@ -11,7 +11,7 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I make some badass :cake: Tiramisu :heart: ... 
 
-
+![](https://komarev.com/ghpvc/?username=usmanakram232&color=blueviolet)
 
 ![MeCard](https://user-images.githubusercontent.com/102169/187198083-e49b7694-b763-40a0-ab66-834378e423e9.png)
-[](https://komarev.com/ghpvc/?username=usmanakram232&color=blueviolet)
+
