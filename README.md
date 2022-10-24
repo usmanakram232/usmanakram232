@@ -1,4 +1,4 @@
-### Hi Hi 👋 🦕
+### Hi Hi 👋 🦕                                                                                     ![](https://komarev.com/ghpvc/?username=usmanakram232&color=blueviolet)
 
 ### It's me, Wolfie 🐺
 
